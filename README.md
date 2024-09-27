@@ -1,1 +1,0 @@
-# fatwa.github.io
